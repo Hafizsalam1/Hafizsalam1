@@ -9,7 +9,7 @@
 
 <br>
 
-- Fullstack Developer Trainee at Enigma Camp
+- Software Engineer at PT Asuransi Kredit Indonesia
 - Fresh graduate from Engineering Physics, Sepuluh Nopember Institute of Techology
 
 <br><br>
